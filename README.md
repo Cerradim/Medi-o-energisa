@@ -1,1 +1,0 @@
-# Medi-o-energisa
